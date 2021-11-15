@@ -40,4 +40,4 @@ Let's Start!
   
   5. (For the event) I HIGHLY recommend that you use an all DARK type party because DARK type characters have special effects [Bonus Drops] on the event.
   
-  6. (For the event) I recommend that you farm [Magic Research Consultation (Expert)] to get a ton of rewards.
+  6. (For the event) I recommend that you farm [The Serious Orc and the Forest Manager.
